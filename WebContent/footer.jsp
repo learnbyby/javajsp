@@ -1,0 +1,1 @@
+Developed by Pavel Lukyanenko and Andrei Biareshchanka
